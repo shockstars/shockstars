@@ -21,5 +21,6 @@ byi: if you didn't notice already i am an introject from a problematic source. *
 
 you should consider educating yourself on did :D an old friend of ours made a rentry full of medical resources from trusted sources. look at it here: https://rentry.co/did-research
 
-also, don't use that to self diagnose. if you have the resources, please go get a professional. that's the whole point of self-diagnosing anyways which is going to a professional about it.
+also, if you think you have did and have the resources to seek professional help please go do that.
+
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
