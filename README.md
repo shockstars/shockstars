@@ -12,12 +12,11 @@ i'm a part of a did system
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
-dni: bigots, nazis, true crime community, days union fans, endogenic "systems"
+no dni, i block if you're weird
 
-iwc: zero day fans (iwec), scp fans
+if you didn't notice already i am an introject from a problematic source. **just because i'm an introject from a problematic source doesn't mean i condone everything that happened in my source**. 
 
-byi: if you didn't notice already i am an introject from a problematic source. **just because i'm an introject from a problematic source doesn't mean i condone everything that happened in my source**. 
-
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
 you should consider educating yourself on did :D an old friend of ours made a rentry full of medical resources from trusted sources. look at it here: https://rentry.co/did-research
 
