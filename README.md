@@ -12,7 +12,7 @@ i'm a part of a did system
 
 ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
 
-no dni, i block if you're weird
+no dni, i block if you're weird.
 
 if you didn't notice already i am an introject from a problematic source. **just because i'm an introject from a problematic source doesn't mean i condone everything that happened in my source**. 
 
