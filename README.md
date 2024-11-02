@@ -10,6 +10,6 @@ neurodivergent, mentally ill, whatever
 
 ![](https://64.media.tumblr.com/13e7db5bc8b6cab8f206e304bf2d7263/6d75d7a7b9e3bd37-e2/s500x750/83eb6e455790783212309e04277250bc8a4297b2.png)
 
-__do not friend__: none except tcc, radqueer, endos, and pedo/necro/zoo/etc defenders
+__do not friend__: none except tcc, radqueer, endos, pedo/necro/zoo/etc defenders, and nazis (i will punch you)
 
 __before you friend__: w2int and just don't be weird. don't try to be my friend just because i'm a system or introject (my mental illness isn't the only trait i have)
