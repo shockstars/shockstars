@@ -12,4 +12,4 @@ neurodivergent, mentally ill, whatever
 
 __do not friend__: none except tcc, radqueer, endos, and pedo/necro/zoo/etc defenders
 
-__before you friend__: w2int and just don't be weird or only try to be my friend because i'm an introject/system (that's not my only trait!!)
+__before you friend__: w2int and just don't be weird. don't try to be my friend just because i'm a system or introject (my mental illness isn't the only trait i have)
