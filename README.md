@@ -1,1 +1,1 @@
-before you ask if i'm tcc read [this](https://muzzleboy.straw.page/disclaimer).
+no i'm not a tcctard get off my ass.
