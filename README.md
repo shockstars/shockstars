@@ -2,7 +2,7 @@
 
 calvin or cal he/him only thx
 
-no dni, they don't work, i block freely
+no dni, besides literal infants (under 13) and unoriginal people (skin copiers)
 
 not tcc , get off my ass please !! i just like a **fictional** movie...
 
