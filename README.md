@@ -4,6 +4,6 @@ calvin or cal he/him only thx
 
 no dni, besides literal infants (under 13) and unoriginal people (skin copiers)
 
-not tcc , get off my ass please !! i just like a **fictional** movie...
+not tcc , get off my ass :sob:
 
-rachel lurie is one of my favorite zd characters btw she's pretty :3
+i like: guts and blackpowder. i'm gatekeeping the rest.
