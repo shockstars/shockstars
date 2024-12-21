@@ -6,4 +6,4 @@ no dni, besides literal infants (under 13) and unoriginal people (skin copiers)
 
 not tcc , get off my ass :sob:
 
-i like: guts and blackpowder. i'm gatekeeping the rest.
+i like: postal. i'm gatekeeping the rest 😛
