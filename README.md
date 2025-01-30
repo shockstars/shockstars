@@ -1,9 +1,5 @@
+calvin or cal  he/him or it/its exclusively
 
+male , 17 , not tcc 
 
-calvin or cal he/him only thx
-
-no dni, besides literal infants (under 13) and unoriginal people (skin copiers)
-
-not tcc , get off my ass :sob:
-
-i like: postal. i'm gatekeeping the rest 😛
+i like some stuff ask about it
