@@ -1,6 +1,6 @@
 calvin or cal  he/it exclusively 
 
-male , 17 , not tcc (idc about your headcanons)
+male , 17 , not tcc
 
 i like some stuff ask about it
 
