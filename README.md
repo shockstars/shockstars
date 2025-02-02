@@ -1,4 +1,4 @@
-calvin or cal  he/it exclusively 
+calvin or vin  he/it exclusively 
 
 male , 17 , not tcc
 
