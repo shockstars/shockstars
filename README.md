@@ -15,6 +15,3 @@
 ![dtgtz0-d3f46607-e5c1-42e2-9be4-fa00fb27409a](https://github.com/user-attachments/assets/c339ad72-e792-47b5-bc93-9f6a5c3fd5a1)
 
 
-[icon credit](https://girlpanthera.carrd.co/)
-
-
