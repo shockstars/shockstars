@@ -22,10 +22,3 @@
 
 
 
-
-
-![tomboyishlovefor](https://github.com/user-attachments/assets/d7510818-ffea-4e95-859b-1344f5cab740)
-![somethingworthdoing](https://github.com/user-attachments/assets/c2b4c23b-e5af-43ba-8b81-bb519f86d409)
-![lovefeelsallwrong](https://github.com/user-attachments/assets/a86433bb-b520-411b-afd3-729e5a302b87)
-
-
