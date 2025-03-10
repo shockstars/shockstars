@@ -13,6 +13,17 @@
 ![d18nef8-f131926a-1a2c-489e-b848-e6480f13b3c5](https://github.com/user-attachments/assets/8f363dcd-4955-4d51-adaf-e42c81dd973b)
 ![stepmania_stamp_by_elik_chan_d1fnk7p](https://github.com/user-attachments/assets/998671e8-53e5-47c1-9026-9ee69f022851)
 ![dtgtz0-d3f46607-e5c1-42e2-9be4-fa00fb27409a](https://github.com/user-attachments/assets/c339ad72-e792-47b5-bc93-9f6a5c3fd5a1)
+![stepmania2](https://github.com/user-attachments/assets/2a90e70a-d309-4031-93b7-9aefef1548be)
+![stepmania1](https://github.com/user-attachments/assets/2d622a2f-61a0-42af-8315-b685f9fba299)
+![ddrsupernova1](https://github.com/user-attachments/assets/8397306b-e6bf-4aad-99c1-2d9a82e0687e)
+![ddrsupernova2](https://github.com/user-attachments/assets/81f037f5-7893-4159-8104-d08db91a73b0)
+![ddrx](https://github.com/user-attachments/assets/be64b2b6-cbca-406d-8320-ff62ddd42f08)
+![ddrv](https://github.com/user-attachments/assets/42613cfc-93de-46bd-9d0d-30c5af18b385)
+
+
+
+
+
 ![tomboyishlovefor](https://github.com/user-attachments/assets/d7510818-ffea-4e95-859b-1344f5cab740)
 ![somethingworthdoing](https://github.com/user-attachments/assets/c2b4c23b-e5af-43ba-8b81-bb519f86d409)
 ![lovefeelsallwrong](https://github.com/user-attachments/assets/a86433bb-b520-411b-afd3-729e5a302b87)
