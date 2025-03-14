@@ -21,4 +21,4 @@
 ![ddrv](https://github.com/user-attachments/assets/42613cfc-93de-46bd-9d0d-30c5af18b385)
 
 　　　　　　　　　　　　　　~~pact-with-god~~ → ddr-angel
-
+I think I like DDR.
