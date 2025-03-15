@@ -26,5 +26,5 @@ I think I like DDR.
 
 ![recentscore](https://github.com/user-attachments/assets/c8a12045-01d3-4f9b-8a2c-b6cc03a5f737)
 
-![image](https://github.com/user-attachments/assets/39186a31-0487-4852-b39d-cd339267cc6d)
+![image](https://github.com/user-attachments/assets/6b0ae598-573a-46b7-af4b-b8b9dd349a6d)
 
