@@ -22,11 +22,8 @@
 
 　　　　　　　　　　　　　　~~pact-with-god~~ → ddr-angel
               
-I think I like DDR.
 
-![recentscore](https://github.com/user-attachments/assets/c8a12045-01d3-4f9b-8a2c-b6cc03a5f737)
-
-![image](https://github.com/user-attachments/assets/8eb137ad-df0c-4a19-9578-8f1f67110777)
+[Please look at this if you're a fan of the Days Union](https://docs.google.com/document/d/1xYZeKWcTWyxx88dRoP-9c2v1nQRoNBUfS45t-wQ0x0Y/edit?usp=sharing)
 
 
 
