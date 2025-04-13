@@ -23,7 +23,5 @@
 　　　　　　　　　　　　　　~~pact-with-god~~ → ddr-angel
               
 
-[Please look at this if you're a fan of the Days Union](https://docs.google.com/document/d/1xYZeKWcTWyxx88dRoP-9c2v1nQRoNBUfS45t-wQ0x0Y/edit?usp=sharing)
-
 
 
