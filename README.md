@@ -25,4 +25,4 @@
 
 
 
-No I'm not giving up the library seat if it matters so much to you just hide me 
+If I bother you hide me 🤷‍♂️
