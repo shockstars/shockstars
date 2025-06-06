@@ -3,6 +3,3 @@
 　　　　　　　　　　　　　　~~pact-with-god~~ → ~~ddr-angel~~ → jesusluvsjunkies
               
 
-**MY RENTRY COMMISSIONS ARE OPEN!**
-
-For more information, see [this link](https://rentry.co/472threu). If you're interested, whisper me!
