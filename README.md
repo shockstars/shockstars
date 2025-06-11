@@ -1,5 +1,7 @@
-communism is when no iphone.
+i am a cisgender man & 17 years old.
 
-i am a cisgender man. 
+interests fluctuate a lot. find out on your own.
 
-![image](https://github.com/user-attachments/assets/9e55dad3-c8f2-43b7-8c3a-7ba7261d334e)
+music i like: gezebelle gaburgably, pacific purgatory & jesus loves junkies
+
+i main safe server #2 but go to safe server #1 to people watch.
