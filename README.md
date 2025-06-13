@@ -1,4 +1,3 @@
-|<ins>　　　　stuff.txt　　　　　　　- □ × </ins>|
 <details>
 <summary>about me</summary>
 <br>
