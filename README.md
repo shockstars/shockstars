@@ -77,6 +77,7 @@ i shouldn't have to hide my opinions on controversial subjects in this game. her
 <details>
 <summary>links</summary>
 <br>
+  
 **dissociative identity disorder**
   
 https://rentry.co/DID-Research - actual resources on dissociative identity disorder (written by me)
