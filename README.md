@@ -99,3 +99,10 @@ https://pmc.ncbi.nlm.nih.gov/articles/PMC9242847/ - did in an adolescent with 9 
  
 </details>
  ────────────────────────
+ <summary>old usernames</summary>
+<br>
+  
+mainly for people who forgot who i was
+
+~~pact-with-god~~ → ~~ddr-angel~~ → jesusluvsjunkies (current)
+</details>
