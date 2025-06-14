@@ -52,7 +52,7 @@ mentally ill & neurodivergent
 <br>
   ─────────────────
   
-**do not interact** : i block freely. if i don't like you, or i feel as though we won't get along, then i will block you. it's as simple as that. i highly don't recommend interacting with me if you're pro-endo.
+**do not interact** : i block freely. if i don't like you, or i feel as though we won't get along, then i will block you. it's as simple as that. i highly discourage interacting with me if you're pro-endo.
 
 **before you interact**: i need a lot of space, and i sometimes have disorganized speech patterns. i am extremely blunt, and i will ignore people purposefully if i don't feel like talking.
 
