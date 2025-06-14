@@ -56,7 +56,5 @@ mentally ill & neurodivergent
 
 **before you interact**: i need a lot of space, and i sometimes have disorganized speech patterns. i am extremely blunt, and i will ignore people purposefully if i don't feel like talking.
 
-**recommendations**: i recommend you don't interact with me if you can't tell me if you're upset by something i do. i'm not a hard person to get along with, and i won't yell at you for telling me i fucked up. i also don't recommend interacting with me if you're under 15 years old. 
-
   ─────────────────
 </details>
