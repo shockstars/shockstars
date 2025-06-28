@@ -1,10 +1,4 @@
-straw page for information
+**Linked Strawpage for information**
 
-
-
-
-
-https://github.com/user-attachments/assets/36008f61-80f1-4494-a525-b1a231ea244d
-
-
-
+Check out my other decorated StrawPages <3
+* https://byler-endgame.straw.page/
