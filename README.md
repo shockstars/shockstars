@@ -64,9 +64,7 @@ https://traumadissociation.com/osdd.html
 <details>
 <summary>My stance on system discourse</summary>
   
-I have a firm belief that endogenic systems are traumagenic systems that were mislead into believing they were endogenic by someone else. By Pluralpedia's definition, I would be an amni-endo. (don't take that seriously. I am firmly anti-endo and I enjoy making fun of Pluralpedia's stupidness.)
-
-<img width="375" height="125" alt="image" src="https://github.com/user-attachments/assets/373da021-2e99-4abf-a196-c39b9444c348" />
+Firmly anti-endo. I cannot be convinced otherwise no matter what.
 
 </details>
 
