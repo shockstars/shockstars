@@ -1,4 +1,4 @@
-a lot of people on this game don't know what did **actually** is. so, i've taken it upon myself to actually educate people as i'm tired of people treating it like it's the fictional character roleplay disorder.
+A *lot* of people on this game don't know what DID **actually** is. So, I've taken it upon myself to educate people on the disorder as I'm tired of people treating it like the fictional characters in your head disorder.
 
 <details>
 <summary>What is DID?</summary>
