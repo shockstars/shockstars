@@ -62,9 +62,9 @@ https://traumadissociation.com/osdd.html
 </details>
 
 <details>
-<summary>My stance on system discourse</summary>
+<summary>My stance on endogenic systems</summary>
   
-Firmly anti-endo. I cannot be convinced otherwise no matter what.
+I am very firmly anti-endo, and I wear the "sysmed" label with pride. The only way you can be multiple is if you have trauma and experience either secondary structural dissociation with more developed EPs or teritiary structural dissociation. Basically, you can only be multiple if you have OSDD-1 or DID. People with C-PTSD are not multiple and people with BPD are not multiple. Their EPs are not as developed as someone with OSDD-1. People with DP/DR and PTSD are not multiple as they only have 1 ANP and 1 EP.
 
 </details>
 
