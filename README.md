@@ -79,12 +79,11 @@ This is all very positive and I'm glad that my resources and information has bee
 
 </details>
 
+<details>
+<summary> My Info </summary>
+  
+Calvin / Kahle 　┈─ 　he / it　
+⁽⁽　17 , selective friend & int.
+**not looking for friends right now, sorry.**
 
-
-
-
-
-
-
-
-![image](https://github.com/user-attachments/assets/ff6bd522-7a99-441d-b275-e82c1c607f0d)
+</details>
