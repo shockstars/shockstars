@@ -70,7 +70,15 @@ I am very firmly anti-endo, and I wear the "sysmed" label with pride. The only w
 
 </details>
 
+<details>
+<summary>My Favorite Whispers I've ever gotten</summary>
+  
+This is all very positive and I'm glad that my resources and information has been of use to people 🤍 I just like showcasing them because at least I'll have them forever.
 
+<img width="457" height="224" alt="image" src="https://github.com/user-attachments/assets/8ff5519d-4033-4768-8968-2380569daf4e" />
+
+
+</details>
 
 
 
