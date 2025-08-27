@@ -71,7 +71,7 @@ I am very firmly anti-endo, and I wear the "sysmed" label with pride. The only w
 </details>
 
 <details>
-<summary>My Favorite Whispers I've ever gotten</summary>
+<summary Favorite Whispers I've gotten</summary>
   
 This is all very positive and I'm glad that my resources and information has been of use to people 🤍 I just like showcasing them because at least I'll have them forever.
 
@@ -79,6 +79,7 @@ This is all very positive and I'm glad that my resources and information has bee
 
 
 </details>
+
 
 
 
