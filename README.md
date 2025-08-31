@@ -7,7 +7,7 @@ A *lot* of people on this game don't know what DID **actually** is. So, I've tak
 
 <h2>DID vs OSDD</h2>
 
-> OSDD-1, or other specified dissociative disorder subtype 1, is a dissociative disorder that develops like DID but is missing one of the main diagnostic features of DID. For example, OSDD-1a has parts or alters that are less distinct from each other, while OSDD-1b lacks significant amnesia. This, however, does not mean they don't experience amnesia. Someone with OSDD-1b could experience emotional amnesia, but not blackout amnesia.
+> OSDD-1, or other specified dissociative disorder subtype 1, is a dissociative disorder that develops like DID but is missing one of the main diagnostic features of DID. For example, someone with OSDD-1 may have parts or alters that are less distinct from each other or may lack significant amnesia for a full DID diagnosis. This, however, does not mean they don't experience amnesia. Someone with OSDD-1 could experience emotional amnesia, but not blackout amnesia.
 
 > When comparing DID to OSDD-1, it's important to look at the theory of structural dissociation. Unlike DID, OSDD deals with secondary structural dissociation while DID deals with teritiary structural dissociation. The difference between secondary and teritiary structural dissociation is that secondary structural dissociation only has one ANP (apparently normal parts) and multiple EPs (emotional parts) while teritiary structural dissociation has multiple ANPs and EPs.
 
