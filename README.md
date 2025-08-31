@@ -62,15 +62,6 @@ https://traumadissociation.com/osdd.html
 </details>
 
 <details>
-<summary>My stance on endogenic systems</summary>
-  
-I am very firmly anti-endo, and I wear the "sysmed" label with pride. The only way you can be multiple is if you have trauma and experience either secondary structural dissociation with more developed EPs or teritiary structural dissociation. Basically, you can only be multiple if you have OSDD-1 or DID. People with C-PTSD are not multiple and people with BPD are not multiple. Their EPs are not as developed as someone with OSDD-1. People with DP/DR and PTSD are not multiple as they only have 1 ANP and 1 EP.
-
-**DID is not a social construct.** It is a disorder; a disability. Likening it to being trans is very offensive to people with DID (such as myself) and trans individuals. Stop spreading this misinformation as you're only going to make medical professionals not believe *actual* systems more than they already don't. 
-
-</details>
-
-<details>
 <summary> My Favorite Whispers </summary>
   
 This is all very positive and I'm glad that my resources and information has been of use to people 🤍 I just like showcasing the way I've impacted people since it makes me happy :3 
