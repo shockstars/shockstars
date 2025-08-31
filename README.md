@@ -75,10 +75,6 @@ This is all very positive and I'm glad that my resources and information has bee
 <details>
 <summary> My Info </summary>
   
-Calvin / Kahle 　┈─ 　he / it　
-
-⁽⁽　17 , selective friend & int.
-
-**not looking for friends right now, sorry.**
+Info is in my website. If you can't see it properly, I'll make a rentry soon.
 
 </details>
