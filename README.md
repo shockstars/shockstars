@@ -1,4 +1,4 @@
-A *lot* of people on this game don't know what DID **actually** is. So, I've taken it upon myself to educate people on the disorder as I'm tired of people treating it like the fictional characters in your head disorder.
+I've taken it upon myself to educate the general pony public about DID because you all treat it like the roleplay disorder and I hate it.
 
 <details>
 <summary>What is DID?</summary>
@@ -59,22 +59,4 @@ https://traumadissociation.com/osdd.html
 [dissociative identity disorder](https://www.ncbi.nlm.nih.gov/books/NBK568768/)
 
 [Dissociative Identity Disorder (formerly Multiple Personality Disorder)](https://traumadissociation.com/dissociativeidentitydisorder.html)
-</details>
-
-<details>
-<summary> My Favorite Whispers </summary>
-  
-This is all very positive and I'm glad that my resources and information has been of use to people 🤍 I just like showcasing the way I've impacted people since it makes me happy :3 
-
-<img width="457" height="224" alt="image" src="https://github.com/user-attachments/assets/8ff5519d-4033-4768-8968-2380569daf4e"/>
-
-<img width="379" height="404" alt="image" src="https://github.com/user-attachments/assets/5329bc5b-0b43-439b-b9d9-e99a8ee50d09" />
-
-</details>
-
-<details>
-<summary> My Info </summary>
-  
-Info is in my website. If you can't see it properly, I'll make a rentry soon.
-
 </details>
