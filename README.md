@@ -1,4 +1,4 @@
-I've taken it upon myself to educate the general pony public about DID because you all treat it like the roleplay disorder and I hate it.
+I've taken it upon myself to educate the general pony public about DID because you all treat it like the roleplay disorder and it's bullshit because it's not that.
 
 <details>
 <summary>What is DID?</summary>
