@@ -48,3 +48,5 @@ I've taken it upon myself to actually educate people on DID because it's obvious
 [DSM-5-TR](https://web.archive.org/web/20250429141442/https://www.mredscircleoftrust.com/storage/app/media/DSM%205%20TR.pdf)
 
 </details>
+
+<img width="585" height="615" alt="image" src="https://github.com/user-attachments/assets/f8fc1248-1c9f-41f5-bdad-fc2c92217e2b" />
