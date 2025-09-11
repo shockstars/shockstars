@@ -1,4 +1,4 @@
-I've taken it upon myself to actually educate people on DID because it's obvious people don't know what it is properly. It pisses me off as someone suspecting to have DID.
+I've taken it upon myself to actually educate people on DID because it's obvious people don't know what it is properly. 
 
 <details>
 <summary>What is DID?</summary>
