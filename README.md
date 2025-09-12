@@ -1,4 +1,4 @@
-I've taken it upon myself to actually educate people on DID because it's obvious people don't know what it is properly. 
+I've taken it upon myself to actually educate people on DID because it's obvious people don't know what it is or just blindly believe information on Carrds.
 
 <details>
 <summary>What is DID?</summary>
