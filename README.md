@@ -49,4 +49,6 @@ I've taken it upon myself to actually educate people on DID because it's obvious
 
 </details>
 
-<img width="585" height="615" alt="image" src="https://github.com/user-attachments/assets/f8fc1248-1c9f-41f5-bdad-fc2c92217e2b" />
+https://github.com/user-attachments/assets/4e1f5bfb-dcf6-4b38-904d-972147b1b6f7
+
+
