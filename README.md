@@ -66,6 +66,52 @@ I've taken it upon myself to actually educate people on DID because it's obvious
 
 </details>
 
+<details>
+<summary>Where to look for DID information</summary>
+  
+| Good Sources  | Bad Sources |
+| ------------- | ------------- |
+| Any of the diagnostic and statistical manuals of mental disorders  | Carrd, Rentry, etc. (EXCEPT if the Rentry is like the one I have linked and it provides links to actual medical resources)  |
+| [The National Center for Biotechnology Information](https://www.ncbi.nlm.nih.gov/)  | Social Media (reddit, tiktok, instagram, tumblr, etc. Tumblr, tiktok, and reddit especially as they are multiple of the leading perpetrators of misinformation)   |
+| [Science Direct](https://www.sciencedirect.com/)  | ChatGPT, Google Gemini, AI overview   |
+| [International Society for the Study of Trauma and Dissociation](https://www.isst-d.org/)  | Word of mouth (EXCEPT If sources are provided that aren't any of the bad sources listed)   |
+| [Trauma-Dissociation.com](https://traumadissociation.com/)  | Sites with no sources linked
+| Wikipedia (Wikipedia is just a TLDR of information. It's very easy to go to the page for DID and find research papers and information there)  | Ponytown, roblox, etc.
+
+Always remember to check your sources. Here are ways to check your sources provided by [Stanford Law School](https://guides.law.stanford.edu/c.php?g=1255722&p=9200578)
+
+**5W’s from journalism (and history - origin debated)** 
+
+* Who created the source?
+* What is the purpose of the source?
+* When was the source created?
+* Where is the source material from?  
+* Why was the source created?  
+* How does this source compare to others?
+
+**C.R.A.A.P. from Sarah Blakeslee**
+
+* Currency: Timeliness of the information
+* Relevance: Importance of the information for your needs
+* Authority: Source of the information
+* Accuracy: Truthfulness and correctness of the information
+* Purpose: Reason the information exists
+
+**RADAR from Jane Mandalios**
+
+* Relevance - is this precisely relevant to your research issue?
+* Authority - how credible is the author/creator?
+* Date - the date may or may not affect this source’s validity, but what is it?
+* Appearance - what does it tell you about the intended audience?
+* Reason - the source was created? What biases does the reason reveal?
+
+**SIFT from Mike Caulfield**
+
+* Stop - what do you know about this source already? Are you still on topic or heading down a rabbit hole?
+* Investigate the source - know what you’re reading; what is the context?
+* Find better coverage - are you excited by the claim being made? See if there are other sources with this claim that better meet your source needs.
+* Trace claims, quotes, and media to the original context - is it accurately portrayed compared to the original context?
+</details>
 
 
 
