@@ -1,4 +1,4 @@
-![ProfileViews](https://komarev.com/ghpvc/?username=jesusluvsjunkies&color=850000&label=´ཀ`　views&abbreviated=true)
+![ProfileViews](https://komarev.com/ghpvc/?username=jesusluvsjunkies&color=850000&label=´ཀ`&abbreviated=true)
 
 I've taken it upon myself to actually educate people on DID because it's obvious people don't know what it is or just blindly believe information on Carrds.
 
