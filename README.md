@@ -115,5 +115,8 @@ Always remember to check your sources. Here are ways to check your sources provi
 * Trace claims, quotes, and media to the original context - is it accurately portrayed compared to the original context?
 </details>
 
+<img width="198" height="112" alt="stamp_1758309339_8a0d2cef343b444bb6e5ecf64efd61f4" src="https://github.com/user-attachments/assets/33e0c215-3e52-4c69-8e6f-6007e7519ee0" />
+
+
 
 
