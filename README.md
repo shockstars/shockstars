@@ -117,6 +117,14 @@ Always remember to check your sources. Here are ways to check your sources provi
 
 <img width="198" height="112" alt="stamp_1758309339_8a0d2cef343b444bb6e5ecf64efd61f4" src="https://github.com/user-attachments/assets/33e0c215-3e52-4c69-8e6f-6007e7519ee0" />
 
+***
+<details>
+<summary>Ponytown</summary>
+I stole some of these from @mfkat ... Credits to them!
 
+Some docs, research papers, and rentries on stuff occuring on ponytown
+* [Exploration of “Delusional Attachments” as Grandiose Delusions](https://gdoc.pub/doc/e/2PACX-1vTRiUQuLNmr-Zg2RD8nOuDHocT8HPQPzNB79Hf1pNdYFXbAkRGt4kpSt3oZBxih_ubVy5pqaZJ9FqyX#:~:text=It%20is%20rarely%20a%20constant,be%20able%20to%20recognize%20it)
+* [Medical Inspection of “Touch Triggers” as Haphephobia](https://docs.google.com/document/d/e/2PACX-1vSQT6JmL1oTESXWzrjv606UlRTb14dVW82I1qKfjFoRTcyB0VwoeSayP6Z5XfAPgw6hydUw-JOH_mTr/pub)
+</details>
 
 
