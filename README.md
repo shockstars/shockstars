@@ -119,7 +119,7 @@ Always remember to check your sources. Here are ways to check your sources provi
 
 ***
 <details>
-<summary>Online Community Essays</summary>
+<summary>Essays</summary>
   
 If you have an essay to add here, please send a message to me on my Atabook! I'll be happy to read them.
 * [Exploration of “Delusional Attachments” as Grandiose Delusions](https://gdoc.pub/doc/e/2PACX-1vTRiUQuLNmr-Zg2RD8nOuDHocT8HPQPzNB79Hf1pNdYFXbAkRGt4kpSt3oZBxih_ubVy5pqaZJ9FqyX#:~:text=It%20is%20rarely%20a%20constant,be%20able%20to%20recognize%20it)
