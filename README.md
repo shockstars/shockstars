@@ -130,11 +130,10 @@ If you have an essay to add here, please send a message to me on my Atabook! I'l
 <details>
 <summary>PonyTown Resources</summary>
 
-These aren't medical, but are instead for beginners or people who need them.
+This is just for people who need them. I'm not in support of some of the things listed on these resources (such as the name tag dictionary) and having them here ≠ support. Even making them ≠ support.
 
 * [Ponytown skin guide by XV-S](https://rentry.co/ptskinguide)
 * [Name Tag Dictionary by me](https://rentry.co/Name-Tag-Dictionary)
-   * NOTE: This is for educational purposes, and I am not in support of a few terms added to this dictionary.
 * [PonyTown Dictionary by me](https://rentry.co/Ponytown-dictionary)
 * [Pony.Town Ground Colors by me](https://rentry.co/ponytown-color-codes)
 </details>
