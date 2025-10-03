@@ -115,7 +115,12 @@ Always remember to check your sources. Here are ways to check your sources provi
 * Trace claims, quotes, and media to the original context - is it accurately portrayed compared to the original context?
 </details>
 
-<img width="198" height="112" alt="stamp_1758309339_8a0d2cef343b444bb6e5ecf64efd61f4" src="https://github.com/user-attachments/assets/33e0c215-3e52-4c69-8e6f-6007e7519ee0" />
+<img width="198" height="112" alt="stamp_1759498281_9e589ac9225f4a498513c60441add053" src="https://github.com/user-attachments/assets/55c6234d-1a7e-4d76-b6f0-fa90cc6b3c61" /> <img width="198" height="112" alt="stamp_1759498494_a4bc36e1874b43dfb5137e8790aff7bd" src="https://github.com/user-attachments/assets/df31481f-2464-4333-a85b-166bc982ec3e" /> <img width="198" height="112" alt="stamp_1759498886_bf122491b9ca483995364efec17a6a2d" src="https://github.com/user-attachments/assets/12a2a7cb-18cc-4144-b1f2-79587c19ee55" />
+
+
+
+
+
 
 ***
 <details>
