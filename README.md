@@ -12,6 +12,14 @@ DID is often misrepresented online and sometimes dumbed down to the "people in m
 <summary>Alters</summary>
 > writing give me 54 days
 </details>
+<details>
+<summary>Alters</summary>
+> alter is u alter is me (WIP)
+<details>
+<summary>Introjects</summary>
+> introject is when u hav fictional character in ur head (WIP)
+</details>
+</details>
 
 
 
